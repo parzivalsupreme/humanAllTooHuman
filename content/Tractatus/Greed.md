@@ -1,0 +1,2 @@
+> Greed, for lack of a better word, is good. Greed is right, greed works. Greed clarifies, cuts through and captures the essence of the evolutionary spirit. Greed in all of its forms. Greed for life, money, love, knowledge, has marked the upward surge of mankind 
+> —**Gordan Gecko, Wall Street (1987)**

@@ -1,0 +1,28 @@
+- Franz Kafka
+- Fyodor Dostoevsky
+- George Orwell
+- Jordan Peterson
+- Ted Kaczynski
+- Friedrich Nietzsche
+- Niccolo Machiavelli
+- Aldous Huxley
+- Karl Marx
+- Albert Camus
+- Stephen Hawking
+- Ayn Rand
+- Robert Greene
+- Plato
+- Yukio Mishima
+
+- Kierkegaard
+- Dante Alighieri
+- Stephen Hicks
+- Epicurean Philosophy
+- Max Stirner
+- H.P. Lovecraft
+- Ernst Jünger
+- Henry Kissinger
+- Leo Strauss
+- Homer
+- GK Chesterton
+- Carl Schmitt
