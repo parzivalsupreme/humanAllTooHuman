@@ -1,1 +1,0 @@
-Carry trades involve **borrowing at low cost in one currency to achieve higher returns from investments in another currency**. One of the most recent examples has been to borrow Japanese yen, expecting the currency to remain cheap against the U.S. dollar and for Japanese interest rates to remain low.
