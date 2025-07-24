@@ -1,1 +1,0 @@
-To live in constant idleness is to decay daily.![[Pasted image 20240122131143.jpg]]

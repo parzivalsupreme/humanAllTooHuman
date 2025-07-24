@@ -1,1 +1,0 @@
-Conciseness, Playfulness, and Sophistication![[Pasted image 20240217200535.jpg]]
