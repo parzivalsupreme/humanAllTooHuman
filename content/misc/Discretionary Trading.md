@@ -18,7 +18,7 @@ Price is the clearing point where the marginal buyer meets the marginal seller; 
 
 Studies of order‑flow, liquidity pockets, volatility clustering and market regimes give the discretionary trader a “big‑air” feel for when conditions are benign versus treacherous.
 
-Accept that most price movement is noise; the job is to recognise the small subset of moments when the odds briefly tilt.
+Accept that most price movement is noise; the job is to **recognise the small subset of moments when the odds briefly tilt.**
 
 ---
 
