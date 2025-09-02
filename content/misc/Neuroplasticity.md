@@ -1,3 +1,7 @@
+---
+draft: true
+---
+
 # Neuroplasticity from First Principles
 
 ## First Principles

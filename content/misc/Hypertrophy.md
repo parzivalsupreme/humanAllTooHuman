@@ -1,3 +1,7 @@
+---
+draft: true
+---
+
 # Muscle Growth from First Principles
 
 | “Muscle growth” in plain talk | First‑principles formulation |

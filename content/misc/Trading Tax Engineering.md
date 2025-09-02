@@ -1,3 +1,7 @@
+---
+draft: true
+---
+
 # LEGAL Tax Minimisation for Prop-Firm Traders in the Philippines
 
 ## Goal

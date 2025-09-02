@@ -1,3 +1,6 @@
+---
+draft: true
+---
 
 ## Begin with the Objective Function
 
