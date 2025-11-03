@@ -91,3 +91,6 @@
 ![[Pasted image 20250624220415.png]]
 ![[SnapInsta.to_523105340_18133971022434753_3181439820993543982_n.jpg]]![[download.jpg]]
 ![[Gzil1SgWwAA3i6t.jpg]]
+![[Pasted image 20250924071020.png]]
+![[Pasted image 20250909123147.png]]
+![[Pasted image 20250924221636.png]]
